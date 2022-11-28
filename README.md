@@ -1,1 +1,2 @@
-# Gami13.github.io
+# Hey 👋
+## I will update this page when I have some free time and motivation
